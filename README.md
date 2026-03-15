@@ -54,7 +54,7 @@ More projects coming as I continue documenting my journey in cybersecurity.
 ## 📫 Connect With Me
 
 * LinkedIn: (www.linkedin.com/in/mustafa-ahmed-3922a6103)
-* TikTok: (@mustafaahmed34)
+* TikTok: (https://www.tiktok.com/@mustafaahmed34?_r=1&_t=ZS-94hEDlHtry1)
 * Instagram: (https://www.instagram.com/cyberwithdex?igsh=MXZzdDNxbTMzZ3h1eQ%3D%3D&utm_source=qr)
 
 ---
